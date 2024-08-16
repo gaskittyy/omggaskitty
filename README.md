@@ -10,5 +10,5 @@
 
 **｀、ヽ｀ヽ｀、ヽ(ノ＞＜)ノ ｀、ヽ｀ヽ｀、ヽ**
 
-![heart2heart](https://xyz.crd.co/assets/images/gallery06/5cb32440.gif?v=b8c10f81) gosto mt do duxoo ![heart2heart](https://xyz.crd.co/assets/images/gallery06/5cb32440.gif?v=b8c10f81)
+![heart2heart](https://xyz.crd.co/assets/images/gallery06/5cb32440.gif?v=b8c10f81) alura é bem legal ![heart2heart](https://xyz.crd.co/assets/images/gallery06/5cb32440.gif?v=b8c10f81)
 ![bob](https://pix.crd.co/assets/images/gallery16/edc02f19_original.gif?v=9e8e1f8a)
