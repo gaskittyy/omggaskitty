@@ -5,7 +5,8 @@
 - ela / dela
 - pt / eng / esp
 - **UM BEIJO OSEIAS**
-- `( currently hyperfixated on duxo :d )`
+- Estudante do EM 1°
+- `( EMAIL: 00001113060955sp@al.educacao.sp.gov.br )`
 
 
 **｀、ヽ｀ヽ｀、ヽ(ノ＞＜)ノ ｀、ヽ｀ヽ｀、ヽ**
